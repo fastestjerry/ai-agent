@@ -2,11 +2,12 @@
 
 选机场，先看自己的使用习惯：经常用、需要切换线路，重点比较节点和套餐额度；偶尔用，更适合关注流量能保留多久。下面整理两种选择，并附苹果账号、充值卡和 AI 月卡入口。
 
-## 多线路选择：🚀 [v2free1](https://w1.soxo.top/auth/register?code=QKu7#tt) &ensp; [v2free2](https://w2.xmoney.top/auth/register?code=QKu7#tt) &ensp; [v2free3](https://w1.xmoney.top/auth/register?code=QKu7#tt)  &ensp; [v2free4](https://cdn.xmoney.top/auth/register?code=QKu7#tt) 
+## 多线路选择：🚀 [v2free2](https://w2.xmoney.top/auth/register?code=QKu7#tt) &ensp; [v2free3](https://w1.xmoney.top/auth/register?code=QKu7#tt)  &ensp; [v2free4](https://cdn.xmoney.top/auth/register?code=QKu7#tt) 
 
 **适合经常使用、希望有更多线路可选的人。** 原稿所核对的配置有 292 个节点条目，包含不同协议版本，不代表 292 台独立服务器，也不表示购买任意套餐就能使用全部节点。
 
 线路带有学术、移动友好、校园网、AI 等用途标签，按需求查找即可，不必逐个翻地区列表。这些是服务方标注，具体能否满足需求，仍需实际连接确认。
+
 
 ### 套餐先看这几档
 
