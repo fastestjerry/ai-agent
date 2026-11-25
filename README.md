@@ -1,6 +1,6 @@
 # 机场节点与套餐推荐｜线路选择、流量与价格怎么选
 
-选机场，先看自己的使用习惯：经常用、需要切换线路，重点比较节点和套餐额度；偶尔用，更适合关注流量能保留多久。下面整理两种选择，并附苹果账号、充值卡和 AI 月卡入口。
+选机场，先看自己的使用习惯：经常用、需要切换线路，重点比较节点和套餐额度；偶尔用，更适合关注流量能保留多久。
 
 ## 多线路选择：🚀 [v2free2](https://w2.xmoney.top/auth/register?code=QKu7#tt) &ensp; [v2free3](https://w1.xmoney.top/auth/register?code=QKu7#tt)  &ensp; [v2free4](https://cdn.xmoney.top/auth/register?code=QKu7#tt) 
 
