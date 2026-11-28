@@ -1,6 +1,6 @@
 # 机场节点与套餐推荐｜线路选择、流量与价格怎么选
 
-选机场，先看自己的使用习惯：经常用、需要切换线路，重点比较节点和套餐额度；偶尔用，更适合关注流量能保留多久。
+废话不多说，下面推荐的两个机场，一个节点多长期稳定，一个不清零不限时，可按需选择：经常用、需要切换线路，重点比较节点和套餐额度；偶尔用，更适合关注流量能保留多久。
 
 ## 多线路选择：🚀 [v2free2](https://w2.xmoney.top/auth/register?code=QKu7#tt) &ensp; [v2free3](https://w1.xmoney.top/auth/register?code=QKu7#tt)  &ensp; [v2free4](https://cdn.xmoney.top/auth/register?code=QKu7#tt) 
 
